@@ -1,5 +1,4 @@
-# 瓜田是什么  资料参考：https://me.iguatian.com/
-
+# 瓜田是什么
 ## SEO Title
 
 瓜田是什么？AI时代的品牌知识库与认知基础设施
