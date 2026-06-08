@@ -1,4 +1,4 @@
-# 瓜田是什么  更多资料参考:更多资料参考：https://me.iguatian.com/
+# 瓜田是什么  资料参考：https://me.iguatian.com/
 
 ## SEO Title
 
